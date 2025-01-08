@@ -6,7 +6,7 @@
 + I tend to hide people if their presence annoys me or if I simply do not enjoy a discussion they're publicily having. In fact, I have a good half of the people in the BSD area hidden. I apologize if I appear to be sitting over/covering anyone due to that.
 + I'm not in a lot of fandoms and my interests change rather slowly. If you're interest, go ahead and ask me about them.
 
-## About ships:
+#### About ships:
 + I'm not an avid shipper, nor do I enjoy having whole conversations about them.
 + Despite that, I still enjoy some ships (such as sskk and ranpoe) and have firm opinions about them.
 + I will not respect your ships if I believe they are absurd and will never "sail". I expect people to give me the same lack of respect regarding my own ships.
