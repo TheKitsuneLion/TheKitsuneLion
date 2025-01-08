@@ -18,7 +18,3 @@
 <p align="center">
   <img width="1000" height="100" src="https://64.media.tumblr.com/6786eaec9c7c2e633934506ff6ab0ab5/d5fb3c05e7c3fccc-a1/s2048x3072/f42de9d4842e7a80e775aa12c7fc1b195f7eb397.pnj">
 </p>
-
-<p align="center">
-  <img width="1000" height="300" src="https://i.pinimg.com/736x/78/0e/19/780e19bb2b6c25af764890691d51e15b.jpg">
-</p>
