@@ -13,5 +13,5 @@
 + Leading with what I said before, I suggest you do not interact with me if you enjoy any ship involving Fyodor or Dazai (apart from skk, that one I can tolerate). This is for your own good, I will not hesitate to hate on those ships.
 
 <p align="center">
-  <img width="900" height="400" src="https://i.pinimg.com/736x/78/0e/19/780e19bb2b6c25af764890691d51e15b.jpg">
+  <img width="800" height="300" src="https://i.pinimg.com/736x/78/0e/19/780e19bb2b6c25af764890691d51e15b.jpg">
 </p>
