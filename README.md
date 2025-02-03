@@ -10,7 +10,7 @@
 + I'm not in a lot of fandoms and my interests change rather slowly. If you're interest, go ahead and ask me about them.
 
 #### About ships:
-+ I'm not an avid shipper, nor do I enjoy having whole conversations about them.
++ I'm not an avid shipper, I actually hate most of the ships which exist in this fandom.
 + Despite that, I still enjoy some ships (such as sskk and ranpoe) and have firm opinions about them.
 + I will not respect your ships if I believe they are absurd and will never "sail". I expect people to give me the same lack of respect regarding my own ships.
 + Leading with what I said before, I suggest you do not interact with me if you enjoy any ship involving Fyodor or Dazai (apart from skk, that one I can tolerate). This is for your own good, I will not hesitate to hate on those ships.
