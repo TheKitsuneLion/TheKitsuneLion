@@ -10,7 +10,7 @@
 + I'm not in a lot of fandoms and my interests change rather slowly. If you're interest, go ahead and ask me about them.
 
 #### About BSD ships:
-+ I'm not an avid shipper; I do not hate each and every ship in existence.
++ I'm not an avid shipper, but I do not hate each and every ship in existence.
 + My favourite ship is SSKK (aka AkuAtsu). I have firm opinions about it and will most likely bring it up few times in conversations.
 + If you enjoy rarepairs, I suggest you do not interact with me. I have nothing against them but you people are insufferable to be around. 
 + Leading with my previous statement: I will not respect your ships if I dislike them. I expect the same level of disrespect from anyone who talks to me. Thank you.
