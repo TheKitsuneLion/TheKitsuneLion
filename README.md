@@ -11,7 +11,6 @@
 #### About the BSD fandom:
 + My favourite characters are Atsushi, Akutagawa and Higuchi (honourable mention to Kajii). I'll talk a lot about them if given the chance. 
 + Most of the fandom genuinly makes me uncomfortable so I might not be too eager to interact at first. I'll open up as time goes on if we get along.
-+ I'm not an avid shipper, but I do not hate each and every ship in existence.
 + My favourite ship is SSKK (aka AkuAtsu). I have firm opinions about it and will most likely bring it up few times in conversations.
 + If you enjoy rarepairs, I suggest you do not interact with me. I have nothing against them but you people are insufferable to be around. 
 + Leading with my previous statement: I will not respect your ships if I dislike them. I expect the same level of disrespect from anyone who talks to me. Thank you.
